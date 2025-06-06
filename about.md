@@ -13,4 +13,4 @@ permalink: /about/
 
 ### Contact me
 
-rfm0x@proton.me](mailto:rfm0x@proton.me)
+[rfm0x@proton.me](mailto:rfm0x@proton.me)
