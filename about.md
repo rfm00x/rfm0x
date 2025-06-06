@@ -8,9 +8,9 @@ permalink: /about/
 
 ### More Information
 
-Канал в тг https://t.me/rfmOOx
-Я в тг https://t.me/Ox6d7266
+Канал в тг [l33trfm0x](https://t.me/+xfJCwAGSwAcyOWMy)
+Я в тг https://t.me/satan1st
 
 ### Contact me
 
-[ox6d7266@proton.me](mailto:ox6d7266@proton.me)
+rfm0x@proton.me](mailto:rfm0x@proton.me)
